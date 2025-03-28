@@ -6,5 +6,5 @@
 - 👯 Busco colaborar en la aplicación de sistemas que mantengan la seguridad de información sensible 
 - 🤔 Estoy necesitando ayuda para aprender inglés
 - 💬 Te podría ayudar a realizar informes
-- 📫 Me podría contactar por yulybethrios.pai@gmail.com
+- 📫 Me podrías contactar por yulybethrios.pai@gmail.com
 - ⚡ Fun fact: ... Me gusta aprender siempre algo nuevo
