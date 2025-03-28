@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi everyone 👋
 
 
 - 🔭 Actualmente estoy trabajando en el área del marketing digital
